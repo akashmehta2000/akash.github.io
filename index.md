@@ -40,7 +40,6 @@ _Ferrari Laferrai Aperta was launched to mark the 70th anniversary of the compan
 
 **10. ZENVO TS1 - $1.9 MILLION**
 
-_The Zenvo TS1 creates an atrocious amount of power by combining its 6.8 liter V8 with both a supercharger and a turbo charger. This creation comes from a lesser known Danish super car builder._
-
+_The Zenvo TS1 creates an atrocious amount of power by combining its 6.8 liter V8 with both a supercharger and a turbo charger. This creation comes from a lesser known Danish supercar builder._
 
 
